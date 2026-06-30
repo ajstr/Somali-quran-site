@@ -1,0 +1,2 @@
+# omaliquran-site
+privacy policy
